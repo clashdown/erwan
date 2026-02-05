@@ -1,10 +1,10 @@
 # erwan尔湾云官网地址
 
-最新地址1：[https://erwan.cc](https://c.jichangs.com/node1)
+最新地址1：[https://erwan.cc](https://c.jichangs.com/erwan)
 
-最新地址2：[https://erwan6.net](https://c.jichangs.com/node1)
+最新地址2：[https://erwan6.net](https://c.jichangs.com/erwan)
 
-最新地址3：[https://ew443.net](https://c.jichangs.com/node1)
+最新地址3：[https://ew443.net](https://c.jichangs.com/erwan)
 
 ---
 
@@ -24,7 +24,7 @@
 
 ## 尔湾云加速器优惠码
 
-👏 年付7折优惠码，购买时请输入 [ss12](https://c.jichangs.com/node1)
+👏 年付7折优惠码，购买时请输入 [ss12](https://c.jichangs.com/erwan)
 
 👉 套餐流量为一次性到账，期限内有效，不能叠加购买 ❗
 
@@ -43,7 +43,7 @@
 | 旗舰版    | 按月付  | 59.99 | 600 GB  | 8      |
 | 旗舰版Max | 按月付  | 99.99 | 1200 GB | 10     |
 
-[![erwan尔湾云套餐价格](erwan_20241130_175534.png)](https://c.jichangs.com/node1)
+[![erwan尔湾云套餐价格](erwan_20241130_175534.png)](https://c.jichangs.com/erwan)
 
 ---
 
